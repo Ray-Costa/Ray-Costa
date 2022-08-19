@@ -1,4 +1,4 @@
-### Oiii!   Eu sou Renata Costa 
+### Oiii! ♡♡
 
 
 - 💻 Estudando JavaScript
