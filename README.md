@@ -1,4 +1,4 @@
-### Oiii! ♡♡
+### Oiii, me chamo Renata! ♡♡
 
 
 - 💻 Estudando JavaScript
