@@ -1,7 +1,7 @@
 ### Oiii!   Eu sou Renata Costa 
 
 
-- 🌱 Estudando JavaScript
+- 💻 Estudando JavaScript
 - 😄 Pronouns: ela/dela
 
 
